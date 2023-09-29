@@ -10,7 +10,7 @@ Items required:
 - brain
 - reading capabilities
 
-First you want to visit [HolyUB-Backup](https://holy-skyegamesyt.koyeb.app) and go to GeForceNOW : play.geforcenow.com
+First you want to visit [HolyUB-Backup](https://holy-skyegamesyt.koyeb.app) and go to GeForceNOW : https://play.geforcenow.com
 
 Make an account, then verify it.
 
